@@ -2,4 +2,11 @@ eMaginary is a stroll, an experience, an adventure that invites players to explo
 
 eMaginary ist ein Spaziergang, eine Erfahrung, ein Erlebnis, das den Spieler dazu einlädt, eine virtuelle Welt aus einer weiblichen Sicht zu erkunden.
 Begegnungen mit narzistischen Persönlichkeiten und verliebten Büromenschen, die es zu verkuppeln gilt, inklusive.
-![eMaginary_magicLift](https://github.com/user-attachments/assets/d8d1b87d-29d4-4b68-b784-02e604b8818a)
+
+![eMaginary_Hilfetext](https://github.com/user-attachments/assets/9f6aa516-0707-4f00-bc22-925ad14f0c44)
+
+![eMaginary_Punktesystem](https://github.com/user-attachments/assets/8b7e63f2-53ec-4548-9cef-3ebe61314abe)
+
+
+https://github.com/user-attachments/assets/7978e500-1cc7-477f-93cb-a4267ecb846c
+
