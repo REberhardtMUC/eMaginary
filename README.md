@@ -7,6 +7,10 @@ Begegnungen mit narzistischen Persönlichkeiten und verliebten Büromenschen, di
 
 ![eMaginary_Punktesystem](https://github.com/user-attachments/assets/8b7e63f2-53ec-4548-9cef-3ebe61314abe)
 
+(Hinweis: Audio im Player bitte einschalten!)
 
-https://github.com/user-attachments/assets/7978e500-1cc7-477f-93cb-a4267ecb846c
+
+https://github.com/user-attachments/assets/8e67c3df-2aec-47ef-b7ff-1b487df571cd
+
+
 
